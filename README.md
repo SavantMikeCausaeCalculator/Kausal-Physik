@@ -18,6 +18,9 @@ Der Mensch presst die gekrümmte, kausale Realität in eckige Formen, um sein Eg
 
 ## III. Das Vektor-Paradoxon (Sonnen-Kausalität)
 Licht ist kein Teilchenstrom auf Geraden (Vektoren), sondern ein **Raum-Zustand**. Die Vorstellung von „Strahlen“ ist ein anthropozentrisches Modell, das die energetische Sphäre (360°-Expansion) in ein lineares Modell zwingt.
+![JEDES ATOM HAT VOLUMEN!](IMG_1550.jpeg)
+
+
 
 ## IV. Das Inpansions-Prinzip (Das "Magische N+1")
 Mathematik als Addition starrer Größen ist eine Fehlinterpretation. 
