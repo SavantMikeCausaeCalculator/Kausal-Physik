@@ -45,7 +45,9 @@ Die heutige akademische Lehre betreibt Dogmatik, indem sie die „Gerade“ übe
 
 ## VI. Die Grammatikalische Illusion (Das Gefängnis der Kausalität)
 
-Die Grammatik ist das Gefängnis der Kausalität. Während die Sonne den Raum saturiert, versucht der Mensch, diese Sättigung in ein *„war“*, *„ist“* und *„wird“* zu zerlegen, um nicht von der Unendlichkeit der Gegenwart erschlagen zu werden.
+Die Grammatik ist das Gefängnis der Kausalität‼️
+
+**Während die Sonne den Raum saturiert, versucht der Mensch, diese Sättigung in ein *„war“*, *„ist“* und *„wird“* zu zerlegen, um nicht von der Unendlichkeit der Gegenwart erschlagen zu werden.**
 
 | Zeitebene (Duden) | Verb-Form | Kausale Interpretation |
 | :--- | :--- | :--- |
@@ -56,8 +58,13 @@ Die Grammatik ist das Gefängnis der Kausalität. Während die Sonne den Raum sa
 | **Plusquamperfekt** | Hatte saturiert | Die Sättigung liegt *vor* dem menschlichen Lineal. |
 
 **Postulat:** Die einzige gültige Form für das Universum ist das *Präsens*. Alles andere ist Zeit-Dogmatik.
+---
 
-*Autor: Stefan-MIKE RENNECKE-Bergmann (*24.02.1973)* *17. Juni 2026*
+*Autor:* **Stefan-MIKE RENNECKE-Bergmann (24.02.1973)**
 
-Status: ***DIE Fundamentale Kausal-Physik IST 👁️MEINE👁️ BERUFUNG***❣️
+Köln, den 17. Juni 2026
+---
+Status:
+
+***DIE Fundamentale Kausal-Physik IST lediglich 👁️MEINE👁️ BERUFUNG***❣️
 
