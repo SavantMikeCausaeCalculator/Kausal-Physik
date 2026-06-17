@@ -22,6 +22,8 @@ Licht ist kein Teilchenstrom auf Geraden (Vektoren), sondern ein **Raum-Zustand*
 ## IV. Das Inpansions-Prinzip (Das "Magische N+1")
 Mathematik als Addition starrer Größen ist eine Fehlinterpretation. 
 **Kausal-Physik-Erkenntnis:** N Einheiten in einer Anordnung zwingen den Raum dazu, das (N+1)-te Element zu manifestieren. Das Zentrum ist eine energetische Konsequenz der Begrenzung.
+![Geometrische Evolution der Integration](IMG_1471.png)
+
 
 ## V. Fazit: Das Ende der Dogmatik
 Die heutige akademische Lehre betreibt Dogmatik, indem sie die „Gerade“ über den „Druck“ stellt. Wir postulieren: Die Welt entsteht durch die Anordnung von Kräften, nicht durch ihre Messung.
